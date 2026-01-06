@@ -1,2 +1,2 @@
 # guyz
-estou fazendo isso aqui por diversão
+I'm doing this just for fun.
